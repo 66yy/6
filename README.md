@@ -4,7 +4,7 @@
 防止因为老域名屏蔽无法下载最新平台app，方便大家回家！<br>
 请立刻收藏保存本页！！<br>
 最新的平台回家页面最新的平台回家页面https://github.com/66yy/6       <br>
-电报聊天工具交流更安全，下载安装使用请看T使用攻略：https://github.com/66yy/6/blob/master/TG%EF%BC%88%E7%BA%B8%E9%A3%9E%E6%9C%BA%EF%BC%89%E6%95%99%E7%A8%8B.md
+电报聊天工具交流更安全，下载安装使用请看T使用攻略：https://github.com/66yy/6/blob/master/TG%EF%BC%88%E7%94%B5%E6%8A%A5%EF%BC%89%E6%95%99%E7%A8%8B.md
 
 # 最新苹果安卓下载地址2019年8月26日更新
 ### [f2379.com](http://f2379.com )
